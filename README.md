@@ -1,4 +1,5 @@
 TÉCNICO JUDICIÁRIO
+
 CONHECIMENTOS COMUNS
 Língua Portuguesa: 1. Compreensão e interpretação de texto. 2. Tipologia e gêneros textuais. 3.
 Figuras de linguagem. 4. Significação de palavras e expressões. 5. Relações de sinonímia e de
